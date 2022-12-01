@@ -1,0 +1,7 @@
+<p align="center"><a href="https://systemminelab.com/" target="_blank"><img src="https://www.nogorsolutions.com/images/nogor-solutions-ltd-logo.png" width="400"></a></p>
+
+## About Nogor Solutions Limited
+
+The innovation of the IT industry has a great influence on the development of modern world. Believing this progress being a work of art the NOGOR Solutions Limited, one of the top IT corporations inside Bangladesh is certainly creating some achievement stories in order to contribute in the global IT industry.
+NOGOR Solutions Limited delivers the greatest volume of professional service to the actual organizations and individuals to generate a robust IT infrastructure. At this moment it has become an established IT solution supplier which has been supplying just about anything on desktop, web, in networking & in developing any software. Getting into IT business for more than 10 years now, it possesses a great skilled expert team with good experience in Website design and Software Development.
+NOGOR Solutions Limited is providing various ICT Expert services for more than 10 years in Bangladesh and abroad. We do international software Progress for the several countries like, UK, USA, Canada and also Australia. On the other hand “NOGOR Solutions Limited” is serving various Government sectors including Bangladesh ARMY, Navy along with other MNC’s, corporate and business firms and NGO’s inside Bangladesh also.
